@@ -7,3 +7,4 @@
 # 有急事或内容短小可以发iMessage或telegram。内容大，又长又臭的请发电邮（并非每时每刻都在线），不要催我。催我的话我怕出问题。
 # 以前会写点代码，但是现在忘光了。很尴尬。
 <img src="https://github.com/WOLFRAZOR/WOLFRAZOR.github.iogithub/blob/main/IMG_0462.JPG" width="50%"><img src="https://github.com/WOLFRAZOR/WOLFRAZOR.github.iogithub/blob/main/IMG_1481.JPG" width="50%">
+<a target="_blank" href="http://wpa.qq.com/msgrd?v=3&uin=&site=qq&menu=yes"><img border="0" src="http://wpa.qq.com/pa?p=2::53" alt="按这里加我" title="按这里加我"/></a>
